@@ -1,0 +1,1 @@
+Er stof som dannes til at angribe fremmedlemeger i kroppen. 

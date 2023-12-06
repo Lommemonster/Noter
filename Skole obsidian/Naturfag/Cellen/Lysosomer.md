@@ -1,0 +1,1 @@
+### Lysosomer er vesikler(blærer) som indeholder enzymer. De enzymer som de indeholder er med til at nedbryde ubrugelige dele i cellen. [[Fagocytter]](hvide blodlegemer, som nedbryder bakterier) indeholder mange lysosomer. Hvilket giver mening, da de nedbryder den “ubrugelige” bakterie. Når en celle dør sprænger lysosomerne og nedbryder cellen indefra.

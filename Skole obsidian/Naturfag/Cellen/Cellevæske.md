@@ -1,0 +1,1 @@
+### I cellevæsken inde i cellen ligger cellekernen, mitokondrier, ribosomer osv. Det kalder man også med et fælles navn for cellens organeller. Cellevæsken indeholder også en opløsning af alle de stoffer, der skal være med til cellens mange processer.

@@ -1,0 +1,1 @@
+Schwann Celle eller Schwannske celler er **en gliacelle-type knyttet til det perifere nervesystem, hvis funktion er at give stabilitet og isolation til nervecellernes udløbere (aksoner)**. Små [[Akson | aksoner]] omgives primært af Schwann cellernes cytoplasma, som betegnes den Schwannske skede..
